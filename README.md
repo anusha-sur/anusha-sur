@@ -7,3 +7,4 @@
 - 👯 I’m looking to collaborate on development projects in the field of IoT.
 - 📫 How to reach me: LinkedIn.
 - 😄 Pronouns: She/Her
+- 🤓 Employers: For personal projects from my degree, please reach out:)
